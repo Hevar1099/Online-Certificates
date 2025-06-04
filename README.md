@@ -51,9 +51,9 @@ Feel free to browse each folder to see what I’ve completed. You’re also welc
 ## 📬 Contact
 
 **Hevar Nyaz Abdulqadir**  
-📧 hevar.nasz@gmail.com  
-🔗 [GitHub Profile](https://github.com/yourusername)  
-🔗 [ResearchGate](#) | [Google Scholar](#)
+📧 hevar.ness7@gmail.com  
+🔗 [GitHub Profile](https://github.com/Hevar1099)  
+🔗 [ResearchGate](https://www.researchgate.net/profile/Hevar-Neaz?ev=hdr_xprf) | [Google Scholar](https://scholar.google.com/citations?user=ne_fBiwAAAAJ&hl=en)
 
 ---
 
